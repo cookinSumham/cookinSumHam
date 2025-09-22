@@ -1,16 +1,21 @@
-## ABOUT ME
+## basic info 
 
-<:_
-**cookinSumham/cookinSumHam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+call me tea/ham and c+h freely idm ^^
+you can find me either in the crk area, near spawn/at spwan, or by the proship tree (because thats what its called im guessing..?) DISCLAMER I DONT- proship if you do no offence i dont want to hear abt it much or at all actually. Im either near it because of docks or a bench was free or im a mouthwashnig charcater sitting to the right of the tree:D!
 
-Here are some ideas to get you started:
+i do enjoy mouthwashing the game btw, same for crk. Here are some other ones:
+Little Nightmares
+Shera
+The Owl House
+Voltron
+MineCraft Story Mode
+Transformers
+Deltarune
+Omori
+Splatoon
+Murder drones
+FNF
+fnaf
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+some grew to me while i've been growing up so they seem a little silly but they stuck.
+also if you homophobic/raciest in genral i really..dont want to talk to you, i'm sorry:P
