@@ -5,17 +5,29 @@ you can find me either in the crk area, near spawn/at spwan, or by the proship t
 
 i do enjoy mouthwashing the game btw, same for crk. Here are some other ones:
 Little Nightmares
+
 Shera
+
 The Owl House
+
 Voltron
+
 MineCraft Story Mode
+
 Transformers
+
 Deltarune
+
 Omori
+
 Splatoon
+
 Murder drones
+
 FNF
+
 fnaf
+
 
 some grew to me while i've been growing up so they seem a little silly but they stuck.
 also if you homophobic/raciest in genral i really..dont want to talk to you, i'm sorry:P
